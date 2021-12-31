@@ -1,3 +1,1 @@
-# arisazlan.github.io
-
-### ARIS AZLAN
+# ARIS AZLAN
